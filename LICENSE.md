@@ -1,4 +1,4 @@
-# 
+# Inteligente Adobe Premiere Pro para PC scripts é o melhor Adobe Premiere Pro para PC scripts com visualização em tempo real e sincronização de áudio. Seguro, confiável e otimizado
 
 
 
